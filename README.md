@@ -8,4 +8,4 @@ Project  Ara
    
   [VDO Project Ara] (https://www.youtube.com/watch?v=intua_p4kE0)   
      
-     ที่มา : http://www.smartphonetabletthai.com/motorola/google-%E0%B8%88%E0%B8%B0%E0%B8%82%E0%B8%B2%E0%B8%A2-%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD-%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%81%E0%B8%AD%E0%B8%9A/
+   ที่มา : http://www.smartphonetabletthai.com/motorola/google-%E0%B8%88%E0%B8%B0%E0%B8%82%E0%B8%B2%E0%B8%A2-%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD-%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%81%E0%B8%AD%E0%B8%9A/
