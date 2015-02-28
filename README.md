@@ -5,4 +5,6 @@ Project  Ara
 ![] (http://upload.wikimedia.org/wikipedia/en/7/7d/Project_Ara_scattered_parts.png)   
 ที่มารูปภาพ : http://motorolaara.com/2013/11/07
    
+   ที่มา : http://poommipat.github.io/ara/
+   
   [VDO Project Ara] (https://www.youtube.com/watch?v=intua_p4kE0)
