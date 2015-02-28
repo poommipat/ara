@@ -4,3 +4,4 @@ Project  Ara
 ที่มารูปภาพ : http://motorolaara.com/   
 VDO Project Ara
 -------
+![] (https://www.youtube.com/watch?v=intua_p4kE0)
